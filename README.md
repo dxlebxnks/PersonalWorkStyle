@@ -11,3 +11,10 @@ As an **ENFP** (Extraverted, Intuitive, Feeling, Perceiving), I bring a unique b
 ### 🛠 My Ideal Work Environment
 - **Autonomy + Clarity** – Best when I understand the objective and can design the path forward.
 - **Visual + Agile Planning** – I excel with tools like Kanban boards, sprint tracking, and flexible workflows.
+- **Collaborative Check-Ins** – I value brief syncs to ensure alignment and momentum.
+- **Team-Oriented Vibe** – I thrive in supportive, communicative teams with mutual respect and trust.
+
+### 🤝 How to Work With Me
+- Bring ideas to the table — I love co-creating solutions and mapping out new possibilities.
+- A quick message goes a long way — I’m always open to feedback and quick pivots.
+- Let’s keep things human — I bring a thoughtful, sometimes humorous approach to even the toughest challenges.
